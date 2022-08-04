@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+You don't have to expect much from me. I do it mostly for my own benefit, and then for others...
+
 <!--
 **BinAlexme/BinAlexme** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
