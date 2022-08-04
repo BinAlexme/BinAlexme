@@ -1,4 +1,4 @@
-## Hello my name is Alex. Alex is not everyday, sorry
+## Hello my is Alex. Alex is not everyday, sorry
 
 You don't have to expect much from me. I do it mostly for my own benefit, and then for others...
 
