@@ -1,6 +1,6 @@
 ## Hello my is Alex. Alex is not everyday, sorry
 
-You don't have to expect much from me. I do it mostly for my own benefit, and then for others...
+You shouldn't expect much from me. I mostly do it for my own sake, and then also for others' benefit...
 
 
 
